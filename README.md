@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @BS-Trixal
+- 👀 I’m interested in Learning how to code and become a proffesional programmer.
+- 🌱 I’m currently learning Python
+- 📫 How to reach me Swailehhashem6@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am just strating (8/18/2024)
